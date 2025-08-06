@@ -1,4 +1,4 @@
-## Hi there 👋
+## HELLO! I'm sujin😎
 
 <!--
 **jin-gdeal/jin-gdeal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
